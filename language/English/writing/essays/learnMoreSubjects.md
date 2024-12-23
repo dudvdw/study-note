@@ -1,0 +1,33 @@
+## Some university students wanted to learn about other subjects in addition to their main subjects. Others believe it is more important to give all their time and attention to studying for a qualification. Discuss both these views and give your own opinion.
+
+There is a doubt about whether university students should learn about other subjects beyond their initial major. People have different views on this issue. In my opinion, university students ought to concentrate on their own qualification first, and consider if they have adequate time and energy to learn more later.
+
+Some students believe that if they can learn more about other subjects, they will gain more abilities which may be useful in the future. It is definite that they can obtain more competitive advantages in the job market by learning more things from other major. However, if they can not manage their time well, they will probably fail in both of them. That was a miserable experience which has happened on my classmate.
+
+Some others suppose that they should focus on their major and study for a qualification. They can learn their subjects well and have a deep comprehension about their professional area, that will be beneficial when they want to find an ideal job related to their major in the future. Whereas, we have to notice that the market changed rapidly due to various factors. Therefore, an extra qualification or skill may be helpful and useful for them to deal with these changes.
+
+From my perspective, students should pay attention to their original major and make efforts to study it well first. When they find they have sufficient energy to engage in another major after obtaining good academic performance on their own major, thet can try to learn more subjects. In this way, university students can specialize in their major and broaden visions about another area simultaneously.
+
+In conclusion, both specializing in one qualification and studying other subjects have its own specific advantage. As university students, they should make a proper study schedule according to their abilities and conditions rather than choosing one method casually and blindly.
+
+
+## Revised version
+There is a debate surrounding whether university students should focus solely on their main subjects or explore other areas of study. Different opinions exist on this matter. In my view, students should prioritize their main qualification initially and consider if they have sufficient time and energy to learn about other subjects later.
+
+Some students argue that gaining knowledge in additional subjects can provide them with more skills that may prove valuable in the future. They believe that by broadening their expertise across different majors, they can gain a competitive edge in the job market. However, if they fail to manage their time effectively, they may end up struggling with both their main subject and the additional subjects. Unfortunately, I have witnessed classmates experience the negative consequences of taking on too much without proper time management.
+
+On the other hand, some students believe that focusing solely on their major and studying for a qualification is of utmost importance. By dedicating themselves to their chosen subject, they can develop a deep understanding and proficiency in their professional field, which can greatly benefit them when searching for job opportunities in the future. However, it is essential to acknowledge that the job market is subject to rapid changes influenced by various factors. Therefore, having an additional qualification or skill can greatly assist individuals in adapting to these fluctuations.
+
+In my opinion, it is crucial for students to prioritize their main subject and strive to excel in it initially. Once they have achieved good academic performance in their major, they can then consider dedicating time and energy to learning about other subjects. This approach allows students to specialize in their main qualification while simultaneously broadening their knowledge and understanding in other areas.
+
+To conclude, both specializing in one qualification and studying other subjects have their own advantages. As university students, it is crucial for them to carefully evaluate their abilities and circumstances and make an informed decision rather than randomly and blindly choosing a study method. It is essential to strike a balance by prioritizing their main subject while also considering the acquisition of additional knowledge and skills in other areas.
+
+
+## 8+
+The debate surrounding whether university students should venture beyond their primary fields of study remains ongoing. While some argue that a qualification (demands undivided attention)/(requires preoccupation), others believe that exploring other subjects can bring valuable benefits. In my view, students should prioritize their main subject initially, but also allocate time and energy to learn about other subjects later.
+
+On one hand, proponents/supports/advocates of concentrating solely on one’s major argue that a deep understanding of the subject matter is essential. By dedicating time and effort to master their chosen field, students can develop specialized knowledge and skills that will prove valuable in pursuing relevant professional opportunities. For instance, a business student who immerses themselves in accountancy may find more success in securing a finance-related position.
+
+However, it is essential to acknowledge the ever-changing landscape of the job market. In such a dynamic environment, having diverse knowledge and additional qualifications can prove advantageous. By exploring other subjects, students can broaden their perspectives, gain transferable/expandable skills, and become adaptable to shifting demands. This flexibility enhances their competitive edges, enabling them to explore various career paths. For instance, a student majoring in computer science who also acquires skills in business management can effectively contribute to technology-driven companies as well as assume/undertake managerial roles.
+
+In conclusion, while specialization in one’s major field is important, exploring other subjects can provide students with a competitive edge in today’s rapidly evolving world. Acquiring specialized knowledge in a major subject remains valuable, while combining it with a broader range of skills can enhance career prospects. Achieving a balance between specialization and exploration is key. Ultimately, the decision should be based on individual aspirations and the demands of the job market.
