@@ -1,0 +1,19 @@
+## Nowadays, a growing number of people with health problems are trying alternative medicines and treatments instead of visiting their usual doctors.  Do you think this is a positive or a negative development?
+
+Alternative medicines and treatments are becoming prevalent recently and many patients prefer to choose these therapies rather than asking usual doctors for help. In my opinion, that is a positive change in some cases but not an useful or effective method for all.
+
+There is no doubt that more than medicine has solved most of our health problems successfully, whereas it has some downsides in a few aspects. Although medical insurance can cover the majority of the medical costs, the medical bill still imposes a heavy burden on people with health problems, especially those who need to take medicines all year round. Besides, healthcare with high quality is not assessable to everyone in the society. The medical resources considerably deficient in some undeveloped areas and the quality of medical service is very low.
+
+Therefore, a large number of people started to try alternative medicines and treatments which are much cheaper, more feasible and more effective for some specific diseases. Comparing with modern medicine, some alternative medicines like Chinese medicine have an evident advantage on price and they are more effective to some chronic diseases. Beyond that, there are many Chinese medical doctors which make it possible for patients in remote area to be cured. In addition, some therapies such as acupuncture and massage are more accessible than those expensive medical instruments.
+
+In conclusion, I suppose that alternative medicines and treatments are feasible and effective supplements to modern medicine. People need to choose a suitable treatment for themselves according to their condition instead of having blind faith in one method.
+
+
+## Revised version
+Nowadays, an increasing number of individuals with health problems are opting for alternative medicines and treatments instead of seeking assistance from conventional medical practitioners. In my opinion, this phenomenon has both positive and negative implications, as it can be beneficial in certain cases but may not be a universally effective solution.
+
+Undoubtedly, modern medicine has successfully addressed the majority of our health concerns. However, it is not without its drawbacks. Even with medical insurance covering a significant portion of the expenses, medical bills can still impose a heavy financial burden, especially on individuals who require long-term medication. Furthermore, access to high-quality healthcare is not readily available to all members of society. Undeveloped regions often face a scarcity of medical resources, resulting in poor quality of service.
+
+As a result, a considerable number of people have turned towards alternative medicines and treatments, which offer lower costs, increased feasibility, and effectiveness for specific ailments. For instance, alternative medicines like Chinese medicine hold a distinct advantage in terms of affordability and have shown effectiveness in treating chronic diseases. Additionally, the higher number of Chinese medical practitioners expands the possibility of healing for patients residing in remote areas. Moreover, therapies such as acupuncture and massage are more accessible compared to expensive medical procedures or equipment.
+
+To conclude, I firmly believe that alternative medicines and treatments can serve as viable and effective supplements to modern medicine. However, it is crucial for individuals to make informed choices based on their condition rather than blindly placing their faith in a single method. By doing so, they can potentially derive the maximum benefits from both conventional and alternative approaches.

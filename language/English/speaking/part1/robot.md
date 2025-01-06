@@ -1,0 +1,2 @@
+## Q1: What do you think of robots?
+A1: I think robots are very helpful in every aspect of our daily life. For example, I visited a BMW manufacturing factory which was located at Shenyang several years ago. I was astonished by the robots there which can work at a fast speed. All of manufacturing process were completed by the robots, and they didn't need to have a rest.

@@ -1,0 +1,5 @@
+People always have different reasons for happiness, such as earning a lot of money and becoming rich, succeeding on their career, donating money for the society, accompanying family, living free and independently, socialising with people.
+
+Nowadays, many young adults pay more attention on their own achievement and interest rather than caring about others which is probably resulted from school thinking highly of students with excellent academic performance, competitive sport encouraging young people defeat others, the media emphasizing the importance of money and praising highly of wealthy individuals, the society advocating less about morality and altruism, intense/tight competition for jobs.
+
+Social norms and standards include obeying public order, speaking politely, attending meeting punctually, honest, abiding by table manners embodying that we care about others. Besides, we should not make noise or smoke in public.

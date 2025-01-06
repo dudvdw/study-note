@@ -1,0 +1,2 @@
+## What types of weather do people in your country dislike most? Why is that?
+I would say Chinese people hate smoggy days the most. Due to the severe industrial pollution and car exhaust emissoin, a great part of China was affected by smog. People are worried that such a weather condition would constitute a huge health hazard. Scientific studies have shown that smog is directly linked to a number of respiratory diseases, even lung cancer.
